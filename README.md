@@ -25,4 +25,4 @@ I have strong analytical skills and I am numerate and pay attention to detail. I
 
 **University of Surrey**
 
-Various operational roles at the University employing analytical, customer, team-work and management skills
+Various operational roles at the University, employing analytical, customer, team-work and management skills.
